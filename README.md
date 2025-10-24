@@ -1,4 +1,1 @@
 # staticwebsitecaurosel
-# staticwebsitecaurosel
-# staticwebsitecaurosel
-# staticwebsitecaurosel
